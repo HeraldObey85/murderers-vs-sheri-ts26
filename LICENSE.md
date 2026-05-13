@@ -1,4 +1,4 @@
-#  
+#  murderers vs sheriffs 2 Scripts smart offers the most advanced murderers vs sheriffs 2 Script, with custom skins and auto-sell. Perfect for
 
 
 
